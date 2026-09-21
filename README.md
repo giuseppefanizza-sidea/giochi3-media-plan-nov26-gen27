@@ -1,6 +1,6 @@
 # Piano Media villabebegiokids.it · Novembre 2026 / Gennaio 2027
 
-Deck di presentazione del piano media per Giochi3, 22 slide.
+Deck di presentazione del piano media per Giochi3, 25 slide.
 
 ## Il contenuto è cifrato
 
